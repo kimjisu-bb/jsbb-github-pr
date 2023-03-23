@@ -1,5 +1,17 @@
-# Welcome to GitHub Desktop!
+dddfdo;iasjdfoasdjfio;asj
+sdfiojasd
+\
+d\safjipasd\idas\id\fis\\
+asdijadsi
 
-This is your README. READMEs are where you can communicate what your project is and how to use it.
 
-Write your name on line 6, save it, and then head back to GitHub Desktop.
+
+
+cd
+
+
+
+Writt
+exit
+exit
+your name on line 6, save it, and then head back to GitHub Desktop.
